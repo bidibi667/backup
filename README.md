@@ -1,4 +1,2 @@
 # myfirstrep
-just for fun
-
-!!!
+just for
